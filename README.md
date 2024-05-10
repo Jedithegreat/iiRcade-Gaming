@@ -5,19 +5,20 @@ this is a credit to all that have made this possible..
 
 jjtheking for the discord space
 
-Honkey Kong
+Honkey Kong becase he is god send..
 
-Sidshow Bob
+Sidshow Bob for his amazing ini grafix
 
-Joeythug
+Joeythug helped me alot on updating iiRcade to get synden gun working, mia team
 
-Zoltan
+Zoltan 
 
-Blue Shark
+Blue Shark, realy nice guy.. does not judge..
 
-Mystery Encoder
+Mystery Encoder, mia i asume
 
-TDRE
+TDRE, not shure
+
 
 their are alot moore..will add as i go on...
 
