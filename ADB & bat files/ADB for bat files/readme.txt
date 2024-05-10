@@ -1,1 +1,0 @@
-This is ADB for pushing or pulling via cmd
